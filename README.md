@@ -13,7 +13,4 @@
 #### **Contatos**
 
 - :email: Mikedouglasal94@gmail.com
-- :speech_balloon: [Facebook](https://www.facebook.com/)
 - 🐦 [Twitter](@Michael66622191)
-
-
