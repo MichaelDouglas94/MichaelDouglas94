@@ -7,4 +7,4 @@
 Contato. 
 
 - 🦋 [Bluesky](https://bsky.app/profile/mikedouglas94.bsky.social)
-- 💌 [E-mail](mikedouglasal94@gmail.com] 
+- 💌 Mikedouglasal94@gmail.com 
